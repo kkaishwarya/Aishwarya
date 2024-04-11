@@ -1,4 +1,4 @@
-(Europe & USA) Energy Harvesting Equipment Market [Latest Research] |Size in 2024
+# (Europe & USA) Energy Harvesting Equipment Market [Latest Research] |Size in 2024
 
 <strong>Energy Harvesting Equipment Market Overview with significant CAGR during 2024-2030</strong>
 
