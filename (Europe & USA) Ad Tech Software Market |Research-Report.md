@@ -1,4 +1,4 @@
-(Europe & USA) Ad Tech Software Market |Research-Report
+# (Europe & USA) Ad Tech Software Market |Research-Report
 
 <strong>Ad Tech Software Market Scenario 2024-2030:</strong>
 
