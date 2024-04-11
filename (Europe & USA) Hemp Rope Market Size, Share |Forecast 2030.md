@@ -1,4 +1,4 @@
- (Europe & USA) Hemp Rope Market Size, Share |Forecast 2030
+# (Europe & USA) Hemp Rope Market Size, Share |Forecast 2030
 
 <strong>Hemp Rope Market Scenario 2024-2030:</strong>
 
