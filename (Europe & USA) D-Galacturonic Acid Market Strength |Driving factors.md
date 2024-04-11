@@ -1,4 +1,4 @@
-(Europe & USA) D-Galacturonic Acid Market Strength |Driving factors
+# (Europe & USA) D-Galacturonic Acid Market Strength |Driving factors
 
 <strong>D-Galacturonic Acid Market Complete Scenario 2024-2030</strong>
 
