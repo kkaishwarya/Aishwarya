@@ -1,4 +1,4 @@
-"# (Europe & USA) Printing Machinery Market Latest Size, Share[2024]
+# (Europe & USA) Printing Machinery Market Latest Size, Share[2024]
 
 <strong>Printing Machinery Market Overview with significant CAGR during 2024-2030</strong>
 
