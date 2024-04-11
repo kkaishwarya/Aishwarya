@@ -1,4 +1,4 @@
- (Europe & USA) High Temperature Structural Ceramics Market 2024 |Growth & Forecast Till 2030
+# (Europe & USA) High Temperature Structural Ceramics Market 2024 |Growth & Forecast Till 2030
 
 <strong>High Temperature Structural Ceramics Market Scenario 2024-2030:</strong>
 
