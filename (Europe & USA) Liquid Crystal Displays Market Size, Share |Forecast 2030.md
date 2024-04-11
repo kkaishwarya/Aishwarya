@@ -1,4 +1,4 @@
-(Europe & USA) Liquid Crystal Displays Market Size, Share |Forecast 2030
+# (Europe & USA) Liquid Crystal Displays Market Size, Share |Forecast 2030
 
 <strong>Liquid Crystal Displays Market Complete Scenario 2024-2030</strong>
 
