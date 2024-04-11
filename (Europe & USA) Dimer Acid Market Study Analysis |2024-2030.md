@@ -1,4 +1,4 @@
- (Europe & USA) Dimer Acid Market Study Analysis |2024-2030
+# (Europe & USA) Dimer Acid Market Study Analysis |2024-2030
 
 <strong>Dimer Acid Market Overview with significant CAGR during 2024-2030</strong>
 
