@@ -1,4 +1,4 @@
-"# (Europe & USA) Fashion Sandals Market Share Research [2024-2030] | OUTLOOK
+# (Europe & USA) Fashion Sandals Market Share Research [2024-2030] | OUTLOOK
 
 <strong>Fashion Sandals Market Overview with significant CAGR during 2024-2030</strong>
 
