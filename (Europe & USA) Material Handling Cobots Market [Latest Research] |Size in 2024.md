@@ -1,4 +1,4 @@
- (Europe & USA) Material Handling Cobots Market [Latest Research] |Size in 2024
+# (Europe & USA) Material Handling Cobots Market [Latest Research] |Size in 2024
 
 <strong>Material Handling Cobots Market Complete Scenario 2024-2030</strong>
 
