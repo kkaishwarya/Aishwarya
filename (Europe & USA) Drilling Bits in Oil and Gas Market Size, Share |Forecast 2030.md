@@ -1,4 +1,4 @@
-(Europe & USA) Drilling Bits in Oil and Gas Market Size, Share |Forecast 2030
+# (Europe & USA) Drilling Bits in Oil and Gas Market Size, Share |Forecast 2030
 
 <strong>Drilling Bits in Oil and Gas Market Scenario 2024-2030:</strong>
 
