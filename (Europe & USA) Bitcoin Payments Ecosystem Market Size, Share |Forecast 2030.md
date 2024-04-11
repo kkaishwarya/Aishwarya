@@ -1,4 +1,4 @@
-(Europe & USA) Bitcoin Payments Ecosystem Market Size, Share |Forecast 2030
+# (Europe & USA) Bitcoin Payments Ecosystem Market Size, Share |Forecast 2030
 
 <strong>Bitcoin Payments Ecosystem Market Scenario 2024-2030:</strong>
 
