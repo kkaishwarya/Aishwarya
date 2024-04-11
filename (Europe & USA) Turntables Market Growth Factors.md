@@ -1,4 +1,4 @@
-(Europe & USA) Turntables Market Growth Factors
+# (Europe & USA) Turntables Market Growth Factors
 
 <strong>Turntables Market Overview with significant CAGR during 2024-2030</strong>
 
