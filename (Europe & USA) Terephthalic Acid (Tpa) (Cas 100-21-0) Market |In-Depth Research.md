@@ -1,4 +1,4 @@
-(Europe & USA) Terephthalic Acid (Tpa) (Cas 100-21-0) Market |In-Depth Research
+# (Europe & USA) Terephthalic Acid (Tpa) (Cas 100-21-0) Market |In-Depth Research
 
 <strong>Terephthalic Acid (Tpa) (Cas 100-21-0) Market Complete Scenario 2024-2030</strong>
 
