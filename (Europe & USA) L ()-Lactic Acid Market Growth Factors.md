@@ -1,4 +1,4 @@
- (Europe & USA) L ()-Lactic Acid Market Growth Factors
+# (Europe & USA) L ()-Lactic Acid Market Growth Factors
 
 <strong>L ()-Lactic Acid Market Scenario 2024-2030:</strong>
 
