@@ -1,4 +1,4 @@
- (Europe & USA) Halal Foundation Make-Up Market Strength |Driving factors
+# (Europe & USA) Halal Foundation Make-Up Market Strength |Driving factors
 
 <strong>Halal Foundation Make-Up Market Complete Scenario 2024-2030</strong>
 
