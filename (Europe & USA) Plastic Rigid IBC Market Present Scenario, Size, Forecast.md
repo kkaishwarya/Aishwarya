@@ -1,4 +1,4 @@
-"# (Europe & USA) Plastic Rigid IBC Market Present Scenario, Size, Forecast
+# (Europe & USA) Plastic Rigid IBC Market Present Scenario, Size, Forecast
 
 <strong>Plastic Rigid IBC Market Scenario 2024-2030:</strong>
 
