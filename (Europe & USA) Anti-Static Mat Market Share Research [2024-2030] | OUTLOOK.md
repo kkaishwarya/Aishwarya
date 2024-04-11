@@ -1,4 +1,4 @@
- (Europe & USA) Anti-Static Mat Market Share Research [2024-2030] | OUTLOOK
+# (Europe & USA) Anti-Static Mat Market Share Research [2024-2030] | OUTLOOK
 
 <strong>Anti-Static Mat Market Scenario 2024-2030:</strong>
 
