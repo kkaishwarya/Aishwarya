@@ -1,4 +1,4 @@
-(Europe & USA) Mineral Wool Acoustic Board Market Research Report [2024] Demands, Growth | 2030
+# (Europe & USA) Mineral Wool Acoustic Board Market Research Report [2024] Demands, Growth | 2030
 
 <strong>Mineral Wool Acoustic Board Market Scenario 2024-2030:</strong>
 
