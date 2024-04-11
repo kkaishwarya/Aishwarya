@@ -1,4 +1,4 @@
-(Europe & USA) Glass Beads Market 2024 |Growth & Forecast Till 2030
+# (Europe & USA) Glass Beads Market 2024 |Growth & Forecast Till 2030
 
 <strong>Glass Beads Market Overview with significant CAGR during 2024-2030</strong>
 
