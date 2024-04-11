@@ -1,4 +1,4 @@
-"# (Europe & USA) LED Stair Lighting Market Growth Factors (By region)
+# (Europe & USA) LED Stair Lighting Market Growth Factors (By region)
 
 <strong>LED Stair Lighting Market Scenario 2024-2030:</strong>
 
