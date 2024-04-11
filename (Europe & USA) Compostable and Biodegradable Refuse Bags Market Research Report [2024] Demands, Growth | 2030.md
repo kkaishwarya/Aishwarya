@@ -1,4 +1,4 @@
- (Europe & USA) Compostable and Biodegradable Refuse Bags Market Research Report [2024] Demands, Growth | 2030
+# (Europe & USA) Compostable and Biodegradable Refuse Bags Market Research Report [2024] Demands, Growth | 2030
 
 <strong>Compostable and Biodegradable Refuse Bags Market Overview with significant CAGR during 2024-2030</strong>
 
