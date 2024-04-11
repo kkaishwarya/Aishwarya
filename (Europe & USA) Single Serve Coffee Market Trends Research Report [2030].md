@@ -1,4 +1,4 @@
- (Europe & USA) Single Serve Coffee Market Trends Research Report [2030]
+# (Europe & USA) Single Serve Coffee Market Trends Research Report [2030]
 
 <strong>Single Serve Coffee Market Complete Scenario 2024-2030</strong>
 
