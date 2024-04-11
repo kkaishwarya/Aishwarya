@@ -1,4 +1,4 @@
- (Europe & USA) VSAT Antennas Market Study Analysis |2024-2030
+# (Europe & USA) VSAT Antennas Market Study Analysis |2024-2030
 
 <strong>VSAT Antennas Market Complete Scenario 2024-2030</strong>
 
