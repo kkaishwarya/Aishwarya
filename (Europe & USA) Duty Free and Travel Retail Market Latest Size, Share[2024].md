@@ -1,4 +1,4 @@
-(Europe & USA) Duty Free and Travel Retail Market Latest Size, Share[2024]
+# (Europe & USA) Duty Free and Travel Retail Market Latest Size, Share[2024]
 
 <strong>Duty Free and Travel Retail Market Scenario 2024-2030:</strong>
 
