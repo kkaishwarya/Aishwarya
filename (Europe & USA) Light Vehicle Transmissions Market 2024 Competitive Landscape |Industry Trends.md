@@ -1,4 +1,4 @@
-(Europe & USA) Light Vehicle Transmissions Market 2024 Competitive Landscape |Industry Trends
+ # (Europe & USA) Light Vehicle Transmissions Market 2024 Competitive Landscape |Industry Trends
 
 <strong>Light Vehicle Transmissions Market Overview with significant CAGR during 2024-2030</strong>
 
