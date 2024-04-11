@@ -1,4 +1,4 @@
-"# (Europe & USA) 5G Enabled Industrial IoT (IIoT) Market Size Research Report [2024-2030]
+# (Europe & USA) 5G Enabled Industrial IoT (IIoT) Market Size Research Report [2024-2030]
 
 <strong>5G Enabled Industrial IoT (IIoT) Market Scenario 2024-2030:</strong>
 
