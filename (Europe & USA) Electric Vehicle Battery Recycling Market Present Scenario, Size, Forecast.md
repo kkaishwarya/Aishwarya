@@ -1,4 +1,4 @@
-(Europe & USA) Electric Vehicle Battery Recycling Market Present Scenario, Size, Forecast
+#  (Europe & USA) Electric Vehicle Battery Recycling Market Present Scenario, Size, Forecast
 
 <strong>Electric Vehicle Battery Recycling Market Complete Scenario 2024-2030</strong>
 
