@@ -1,4 +1,4 @@
-"# (Europe & USA) High Visibility Cap Market 2024 |Growth & Forecast Till 2030
+# (Europe & USA) High Visibility Cap Market 2024 |Growth & Forecast Till 2030
 
 <strong>High Visibility Cap Market Complete Scenario 2024-2030</strong>
 
