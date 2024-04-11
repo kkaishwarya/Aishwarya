@@ -1,4 +1,4 @@
- (Europe & USA) Ceiling-Mounted Lighting Market Growth Factors
+# (Europe & USA) Ceiling-Mounted Lighting Market Growth Factors
 
 <strong>Ceiling-Mounted Lighting Market Complete Scenario 2024-2030</strong>
 
