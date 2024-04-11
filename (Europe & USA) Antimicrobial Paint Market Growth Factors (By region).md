@@ -1,4 +1,4 @@
- (Europe & USA) Antimicrobial Paint Market Growth Factors (By region)
+# (Europe & USA) Antimicrobial Paint Market Growth Factors (By region)
 
 <strong>Antimicrobial Paint Market Overview with significant CAGR during 2024-2030</strong>
 
