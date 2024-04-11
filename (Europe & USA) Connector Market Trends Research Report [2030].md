@@ -1,4 +1,4 @@
- (Europe & USA) Connector Market Trends Research Report [2030]
+# (Europe & USA) Connector Market Trends Research Report [2030]
 
 <strong>Connector Market Scenario 2024-2030:</strong>
 
