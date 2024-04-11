@@ -1,4 +1,4 @@
-(Europe & USA) Automated X-ray Inspection (AXI) Market Detailed Analysis of Current Scenario[2030]
+# (Europe & USA) Automated X-ray Inspection (AXI) Market Detailed Analysis of Current Scenario[2030]
 
 <strong>Automated X-ray Inspection (AXI) Market Overview with significant CAGR during 2024-2030</strong>
 
