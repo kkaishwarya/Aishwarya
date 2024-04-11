@@ -1,4 +1,4 @@
- (Europe & USA) Automotive Direct Drive Motor Market Study Analysis |2024-2030
+# (Europe & USA) Automotive Direct Drive Motor Market Study Analysis |2024-2030
 
 <strong>Automotive Direct Drive Motor Market Scenario 2024-2030:</strong>
 
