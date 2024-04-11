@@ -1,4 +1,4 @@
-(Europe & USA) Music notation software Market Size, Share |Forecast 2030
+# (Europe & USA) Music notation software Market Size, Share |Forecast 2030
 
 <strong>Music notation software Market Overview with significant CAGR during 2024-2030</strong>
 
