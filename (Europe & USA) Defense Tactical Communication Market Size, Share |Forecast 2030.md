@@ -1,4 +1,4 @@
- (Europe & USA) Defense Tactical Communication Market Size, Share |Forecast 2030
+# (Europe & USA) Defense Tactical Communication Market Size, Share |Forecast 2030
 
 <strong>Defense Tactical Communication Market Overview with significant CAGR during 2024-2030</strong>
 
