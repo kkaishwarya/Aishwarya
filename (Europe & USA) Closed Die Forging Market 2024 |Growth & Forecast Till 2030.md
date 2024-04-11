@@ -1,4 +1,4 @@
- (Europe & USA) Closed Die Forging Market 2024 |Growth & Forecast Till 2030
+# (Europe & USA) Closed Die Forging Market 2024 |Growth & Forecast Till 2030
 
 <strong>Closed Die Forging Market Scenario 2024-2030:</strong>
 
