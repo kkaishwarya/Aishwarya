@@ -1,4 +1,4 @@
-(Europe & USA) Blue Laser Diode Market 2024 Competitive Landscape |Industry Trends
+# (Europe & USA) Blue Laser Diode Market 2024 Competitive Landscape |Industry Trends
 
 <strong>Blue Laser Diode Market Complete Scenario 2024-2030</strong>
 
