@@ -1,4 +1,4 @@
-(Europe & USA) Digital Notepad Market |In-Depth Research
+# (Europe & USA) Digital Notepad Market |In-Depth Research
 
 <strong>Digital Notepad Market Complete Scenario 2024-2030</strong>
 
