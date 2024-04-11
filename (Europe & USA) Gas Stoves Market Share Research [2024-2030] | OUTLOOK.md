@@ -1,4 +1,4 @@
-(Europe & USA) Gas Stoves Market Share Research [2024-2030] | OUTLOOK
+# (Europe & USA) Gas Stoves Market Share Research [2024-2030] | OUTLOOK
 
 <strong>Gas Stoves Market Complete Scenario 2024-2030</strong>
 
