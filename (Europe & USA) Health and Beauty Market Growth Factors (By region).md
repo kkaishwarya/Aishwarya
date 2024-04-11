@@ -1,4 +1,4 @@
- (Europe & USA) Health and Beauty Market Growth Factors (By region)
+# (Europe & USA) Health and Beauty Market Growth Factors (By region)
 
 <strong>Health and Beauty Market Scenario 2024-2030:</strong>
 
