@@ -1,4 +1,4 @@
-(Europe & USA) Electron Capture Detectors (Ecd) Market Latest Size[2024]
+# (Europe & USA) Electron Capture Detectors (Ecd) Market Latest Size[2024]
 
 <strong>Electron Capture Detectors (Ecd) Market Scenario 2024-2030:</strong>
 
