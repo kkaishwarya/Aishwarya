@@ -1,4 +1,4 @@
-"# (Europe & USA) Audio Video Bridging (AVB) Software Market [Latest Research] |Size in 2024
+# (Europe & USA) Audio Video Bridging (AVB) Software Market [Latest Research] |Size in 2024
 
 <strong>Audio Video Bridging (AVB) Software Market Overview with significant CAGR during 2024-2030</strong>
 
