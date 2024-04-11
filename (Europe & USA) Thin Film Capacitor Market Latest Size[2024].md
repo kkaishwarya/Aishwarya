@@ -1,4 +1,4 @@
-(Europe & USA) Thin Film Capacitor Market Latest Size[2024]
+# (Europe & USA) Thin Film Capacitor Market Latest Size[2024]
 
 <strong>Thin Film Capacitor Market Overview with significant CAGR during 2024-2030</strong>
 
