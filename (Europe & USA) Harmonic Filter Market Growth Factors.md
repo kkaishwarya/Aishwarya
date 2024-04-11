@@ -1,4 +1,4 @@
- (Europe & USA) Harmonic Filter Market Growth Factors
+# (Europe & USA) Harmonic Filter Market Growth Factors
 
 <strong>Harmonic Filter Market Overview with significant CAGR during 2024-2030</strong>
 
