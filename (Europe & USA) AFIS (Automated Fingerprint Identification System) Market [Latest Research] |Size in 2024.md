@@ -1,4 +1,4 @@
-(Europe & USA) AFIS (Automated Fingerprint Identification System) Market [Latest Research] |Size in 2024
+# (Europe & USA) AFIS (Automated Fingerprint Identification System) Market [Latest Research] |Size in 2024
 
 <strong>AFIS (Automated Fingerprint Identification System) Market Scenario 2024-2030:</strong>
 
